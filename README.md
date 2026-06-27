@@ -1,6 +1,7 @@
 <div align="center">
 
-  <img width="512" height="204" alt="image" src="https://github.com/user-attachments/assets/ca687f00-e83b-43c1-9eaa-4b82c8e193ec" />
+ <img width="749" height="337" alt="image" src="https://github.com/user-attachments/assets/9be8653d-47ce-4f89-8777-21ab0a6ad31f" />
+
 
 ![Visitor Count](https://hits.sh/Bl00diedFangz.github.io.svg?label=🎇&color=907562)
 
