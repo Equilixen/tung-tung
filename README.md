@@ -6,4 +6,5 @@
 
 ![Visitor Count](https://hits.sh/Bl00diedFangz.github.io.svg?label=bunch-of-extras&color=907562)
 
-<p align="center"> <img src="Bakugo_MhaGIF-_Bakugo_Mha_My_heroacademia-_Decouvrir_et_partager_des_GIF.gif" /> </p>
+${\textsf{\color{#907562}I love my boyfriend, me and him are literally Kacchan and Deku}}$
+
