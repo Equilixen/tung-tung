@@ -6,4 +6,4 @@
 
 ![Visitor Count](https://hits.sh/Bl00diedFangz.github.io.svg?label=bunch-of-extras&color=907562)
 
-<p align="center"> <img src="[https://64.media.tumblr.com/1684012e2ffd36c45a23e036cb427840/5963ef35a5c8b94f-70/s540x810/efc88558dcd22d762b8181392e108cc28e25be7d.gif](https://media.discordapp.net/attachments/1516882704031940722/1520526967361769592/Bakugo_Mha_GIF_-_Bakugo_Mha_My_hero_academia_-_Decouvrir_et_partager_des_GIF.gif?ex=6a418497&is=6a403317&hm=80897db22a1c75473d17a58e536412d782f9319d1ef35dd34f5d6abed3c776dc&=)" /> </p>
+<p align="center"> <img src="Bakugo_MhaGIF-_Bakugo_Mha_My_heroacademia-_Decouvrir_et_partager_des_GIF.gif" /> </p>
